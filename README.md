@@ -41,6 +41,6 @@ The goal is to explore how factors like **gender, parental education, lunch type
 
 **Mohd Umair**  
 📧 [ua2910998@gmail.com](mailto:ua2910998@gmail.com)  
-🔗 [LinkedIn](https://www.linkedin.com) | [GitHub](https://github.com/yourusername)
+🔗 [LinkedIn](www.linkedin.com/in/mohd-umair-658a7135b) | [GitHub](https://github.com/umair1459)
 
 ---
